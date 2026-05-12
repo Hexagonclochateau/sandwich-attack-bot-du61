@@ -1,4 +1,4 @@
-# 
+# best Sniper for sandwich attack bot | new-token-detection & honeypot-detection is the best sandwich attack bot, featuring new-token-detection and honeypot-detection. Fast, smart,
 
 
 
